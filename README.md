@@ -1,9 +1,5 @@
 # practice1
 guruji
-ijihkbh'jbkj]
-mmn]
-m n '
-
-,m 
-
-.,
+kjnkjnkjn
+jnj j
+njnjnjn
